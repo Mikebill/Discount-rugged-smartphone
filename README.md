@@ -1,5 +1,7 @@
 # Discount-rugged-smartphone
 Discount for the IP68 certified smartphone
+
+
 #NOMU #S30 #32% #Discount
 As you all know, #NOMU S30 is really popular for not only its superb toughness,but also a nice specifications:👇👇👇
 MTK6755 64bit octa-core 2.0GHz 
